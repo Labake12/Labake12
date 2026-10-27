@@ -10,4 +10,4 @@
 
 ### Connect with me:
 
-My email - _labakeadegoroye@gmail.com_
+My email - _adegoroyelabake@gmail.com_
